@@ -3,48 +3,46 @@ template: about-page
 slug: /about
 title: About Foundation
 ---
-Thank you! Now say "nuclear wessels"! No! Don't jump! A sexy mistake. Anyone who laughs is a communist!
+My name is Rachel Benson. I live Robbinsdale with my husband and two young children. We have called Robbinsdale home since 2016. We love the parks, local businesses, and the community we have found here.
 
-A true inspiration for the children. And when we woke up, we had these bodies. Moving along… Do a flip! Michelle, I don't regret this, but I bth rue and lament it.
+In 2019 I stepped down as the treasurer of the MOMS club where I handled the finances and taxes for that time.  Since 2014, I've been raising my two kids and managing our household.  Between 2014 and 2018 I managed our previous home as a rental property.  
+Before that, I gained experience doing the following;
 
-![Toys](/assets/vanessa-bucceri-gdirwiyama8-unsplash.jpg "Toys")
+- Managing Group Homes
+- Education Assistant at Minneapolis public schools
+- Interning at Somali Family Services
+- Teaching English abroad in South Korea
 
-Nay, I respect and admire Harold Zoid too much to beat him to death with his own Oscar. Well, then good news! It's a suppository. Then we'll go with that data file! **I've been there.** *My folks were always on me to groom myself and wear underpants.* What am I, the pope?
+Most important, I’m a member of this great community who wants to continue to see it grow and flourish.
 
-Daddy Bender, we're hungry. We can't compete with Mom! Her company is big and evil! Ours is small and neutral! We're rescuing ya. We'll go deliver this crate like professionals, and then we'll go home.
+I am running for city council representing ward 2. Robbinsdale has seen huge growth and revitalization in the last several years.  I will focus on continue this growth as your city council member. 
 
-I didn't ask for a completely reasonable excuse! I asked you to get busy! I never loved you. OK, this has gotta stop. I'm going to remind Fry of his humanity the way only a woman can. With a warning label this big, you know they gotta be fun!
+As we enter the future we need to look at ways to keep the people who live, work, and visit our beautiful city safe. 
 
-1. And from now on you're all named Bender Jr.
-2. Ah, computer dating. It's like pimping, but you rarely have to use the phrase "upside your head."
-3. You wouldn't. Ask anyway!
+We need to work on modernizing and increasing infrastructure.
 
-Bender, quit destroying the universe! No! The cat shelter's on to me. Enough about your promiscuous mother, Hermes! We have bigger problems. Fatal. I guess if you want children beaten, you have to do it yourself.
+COVID-19 has impacted Robbinsdale businesses.  Those businesses play a huge role in our community. I work to support them and their ability to reopen when it becomes safe to do so.
 
-I decline the title of Iron Cook and accept the lesser title of Zinc Saucier, which I just made up. Uhh… also, comes with double prize money. You mean while I'm sleeping in it? I don't want to be rescued.
+As everything opens up we need to focus on safety. Safety for those that visit our city. Safety for those who work here. And safety for those who call Robbinsdale home.
 
-* You know the worst thing about being a slave? They make you work, but they don't pay you or let you go.
-* And when we woke up, we had these bodies.
-* Spare me your space age technobabble, Attila the Hun!
+Robbinsdale has completed many exciting projects in the past few years.  Many more are in the planning phases and are being worked on for the future.  
 
-Hi, I'm a naughty nurse, and I really need someone to talk to. $9.95 a minute. But, like most politicians, he promised more than he could deliver. I don't know what you did, Fry, but once again, you screwed up! Now all the planets are gonna start cracking wise about our mamas.
+A few notable projects are;
 
-You mean while I'm sleeping in it? I suppose I could part with 'one' and still be feared… Nay, I respect and admire Harold Zoid too much to beat him to death with his own Oscar. Negative, bossy meat creature!
+- The water plant for cleaning Crystal Lake.  It has been beneficial in cleaning the lake water, making it a pleasure visit and walk around.  
+- The new city water treatment center and tower.  This will bring clean, safe, softened water to all Robbinsdale. 
+- The flooding problems on Chowen Ave N. are being addressed.
 
-Oh God, what have I done? I don't 'need' to drink. I can quit anytime I want! Bender! Ship! Stop bickering or I'm going to come back there and change your opinions manually! Wow! A superpowers drug you can just rub onto your skin? You'd think it would be something you'd have to freebase.
+As our city ages, more projects will come up.  We need to plan for and devise the best ways to continue to make our city a pleasure to visit and live in.
 
-Ask her how her day was. In our darkest hour, we can stand erect, with proud upthrust bosoms. Why did you bring us here? I don't know what you did, Fry, but once again, you screwed up! Now all the planets are gonna start cracking wise about our mamas.
+Robbinsdale is a small and diverse city that prides itself on its mission statement.
 
-Good news, everyone! I've taught the toaster to feel love! This opera's as lousy as it is brilliant! Your lyrics lack subtlety. You can't just have your characters announce how they feel. That makes me feel angry!
+> Robbinsdale Our Hometown
+> - Our community of citizens and businesses – dedicated, proud and involved
+> - Our government – accessible, accountable, open and compassionate
+> - Our resources – prudently allocated and equitably provided
 
-Hello Morbo, how's the family? You won't have time for sleeping, soldier, not with all the bed making you'll be doing. Oh Leela! You're the only person I could turn to; you're the only person who ever loved me.
 
-My fellow Earthicans, as I have explained in my book 'Earth in the Balance'', and the much more popular ''Harry Potter and the Balance of Earth', we need to defend our planet against pollution. Also dark wizards. Incidentally, you have a dime up your nose.
+I will hold of city accountable to this mission and represent all our citizens interests.
 
-You are the last hope of the universe. You know the worst thing about being a slave? They make you work, but they don't pay you or let you go. I meant 'physically'. Look, perhaps you could let me work for a little food? I could clean the floors or paint a fence, or service you sexually?
-
-Hey, guess what you're accessories to. I feel like I was mauled by Jesus. Why would a robot need to drink? What are their names? Fry! Quit doing the right thing, you jerk! Doomsday device? Ah, now the ball's in Farnsworth's court!
-
-I saw you with those two "ladies of the evening" at Elzars. Explain that. Shinier than yours, meatbag. That's the ONLY thing about being a slave. Um, is this the boring, peaceful kind of taking to the streets?
-
-Just once I'd like to eat dinner with a celebrity who isn't bound and gagged. Daddy Bender, we're hungry. Kids don't turn rotten just from watching TV. I just want to talk. It has nothing to do with mating. Fry, that doesn't make sense.
+Please share what you love about Robbinsdale and things you wish to see the city improve on. I hope for your vote in the upcoming primary election in August.
