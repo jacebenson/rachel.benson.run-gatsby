@@ -3,7 +3,7 @@ template: index-page
 slug: /
 title: Rachel Benson
 tagline: For Robbinsdale City Council Ward 2
-featuredImage: /assets/background.jpg
+featuredImage: /assets/2020-06-25_11-35-29_937.jpeg
 cta:
   ctaText: Know more
   ctaLink: /about
