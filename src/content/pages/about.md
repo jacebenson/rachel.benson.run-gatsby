@@ -1,7 +1,7 @@
 ---
 template: about-page
 slug: /about
-title: About Foundation
+title: About Rachel Benson
 ---
 My name is Rachel Benson. I live Robbinsdale with my husband and two young children. We have called Robbinsdale home since 2016. We love the parks, local businesses, and the community we have found here.
 
